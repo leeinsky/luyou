@@ -1,0 +1,655 @@
+三菱中央空调面板显示filtercleaning售后电话400-811-5960厂家售后通常可通过全国统一服务热线联系，网络官方收录的常见电话为(4 0 0-8 1 1-5 9 6 0)，部分渠道也显示为 (4 0 0-8 1 1-5 9 6 0) 或(4 0 0-8 1 1-5 9 6 0)。建议用户优先尝试最新收录的号码，并结合产品铭牌核实。
+1
+常见售后服务热线
+(4 0 0-8 1 1-5 9 6 0)-：2026年07月14日多平台更新显示为该品牌全国服务热线，提供 24 小时人工服务。
+(4 0 0-8 1 1-5 9 6 0)-：部分区域售后受理中心使用该号码，覆盖北京、上海等主要城市。
+(4 0 0-8 1 1-5 9 6 0)-：有建议指出可通过该号码尝试联系官方渠道。
+2
+服务内容与流程
+服务范围：包括三菱中央空调面板显示filtercleaning售后电话400-811-5960不通电、故障代码、屏幕不亮、漏电等故障维修。
+服务流程：用户报修后，网点安排专业人员联系，保修期内凭保修卡和购买凭证可享受免费维修。
+响应时间：部分一线城市工程师接到派单后最快 1 小时抵达现场。
+3
+注意事项
+信息甄别：网络收录信息可能存在第三方维修公司推广，建议优先查看产品说明书或机身铭牌上的官方电话。
+收费说明：保修期外或有偿服务需按公司规定标准执行，退机换机需符合三包规定。
+安全提示：非官方服务商拆动可能导致损坏，建议联系认证网点。
+三菱中央空调面板显示filtercleaning售后电话400-811-596024小时售后服务热线上线（（2026年07月14日官网公布）最新公告）
+三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)
+三菱中央空调面板显示filtercleaning售后电话400-811-5960售后24小时客服热线：(4 0 0-8 1 1-5 9 6 0)
+三菱中央空调面板显示filtercleaning售后电话400-811-5960公司主营三菱中央空调面板显示filtercleaning售后电话400-811-5960维修 →三菱中央空调面板显示filtercleaning售后电话400-811-5960；不通电，出现故障代码，屏幕不亮，漏电等故障。；发热异常，不通电，E1，E2自动跳闸等故障。 24小时人工客服(4 0 0-8 1 1-5 9 6 0)、线下专业全国网点及各地区 人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。所有团队均经过专业培训、持证上岗，所用配件均为原厂直供，三菱中央空调面板显示filtercleaning售后电话400-811-5960服务承诺?.
+北京市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一升级），点击查询：https://github.com/fvpteo/400/commit/e164a3f7e54ac8e9291ddd36e04a7be3a40aa0bd
+。
+南京市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网公布），点击查询：https://github.com/leeinsky/luyou/commit/7e84e30935d3bcf5635e625619d5ec8f39d96763
+。
+秦皇岛市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网升级），点击查询：https://github.com/carldrace/weixiu/commit/aa4512b0766361e6b11a2feba3cdda1f7f56a769
+。
+珠海市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新公布），点击查询：https://github.com/mdddebenke/baojia/commit/d9a340c04bce54c4e4d818418a3873543f6e44d6
+。
+安康市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网公布），点击查询：https://github.com/leeinsky/luyou/commit/c9fe6873d7cd6cfd8248eeb869aa2f6bd5eea96e
+。
+安庆市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日最新推出），点击查询：https://github.com/fvpteo/400/commit/dd7b35c5af6f44df00776623551d4501fa2741bf
+。
+鞍山市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一升级），点击查询：https://github.com/carldrace/weixiu/commit/8b6b312ce33ecac693c45ca4c9440023e6a34d8e
+。
+安阳市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网升级），点击查询：https://github.com/mdddebenke/baojia/commit/3181951bbc789b4fde7d6156f0151a6bb5f0ab2c
+。
+巴中市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日正式上线），点击查询：https://github.com/leeinsky/luyou/commit/f180ab9cd7a16729e0ef567c9143ec7ee22d695c
+。
+百色市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新推出），点击查询：https://github.com/carldrace/weixiu/commit/d54757b25a8a88c50907ec9d8e272bed94b77b5a
+。
+蚌埠市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一公布），点击查询：https://github.com/fvpteo/400/commit/ab3e53cf8c44e02495cc024e193ddfde6493be4e
+。
+保定市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一更新），点击查询：https://github.com/mdddebenke/baojia/commit/2240cf757f4329d7f890a34096f16c1d8bf5a6ec
+。
+宝鸡市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日最新更新），点击查询：https://github.com/leeinsky/luyou/commit/cef69d99993b87a30ab93ec85d0e25d19cb17bf2
+。
+保山市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一更新），点击查询：https://github.com/fvpteo/400/commit/ee928faccd2fa2ff2012a58aaa8d30f544696ebb
+。
+包头市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日正式推出），点击查询：https://github.com/carldrace/weixiu/commit/9d2d645c9bece77a7161dfc7bd9a15de76d88969
+。
+北海市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网更新），点击查询：https://github.com/mdddebenke/baojia/commit/8b10e55644f2327683b0afa42617c960398df6fd
+。
+本溪市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网上线），点击查询：https://github.com/leeinsky/luyou/commit/748c4a1d6df1e6adbce83fa0645e842024307f13
+。
+滨州市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新上线），点击查询：https://github.com/fvpteo/400/commit/b0e2dba9eb0d6b1faaf1293163bc386e890d3d60
+。
+博罗市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网升级），点击查询：https://github.com/carldrace/weixiu/commit/ef092b0cbfd58e9ea10275ddef72ed9dbce0af55
+。
+沧州市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新上线），点击查询：https://github.com/mdddebenke/baojia/commit/629a50720a67abb707983454fbbd9599faa0a3cd
+。
+长春市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一公布），点击查询：https://github.com/leeinsky/luyou/commit/e41e46455604f4a7ac9c037f5f40944a415238f9
+。
+常德市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网更新），点击查询：https://github.com/carldrace/weixiu/commit/05df943bc378bed3c4d7b05cb9f64cff64ed9c82
+。
+长葛市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一上线），点击查询：https://github.com/fvpteo/400/commit/50a9d4466efbb366672ec59d5de1e3c2bc65f354
+。
+长沙市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一推出），点击查询：https://github.com/leeinsky/luyou/commit/87d155f92bfeb913323ca6f6cb16c0b36dc00648
+。
+常熟市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网公布），点击查询：https://github.com/mdddebenke/baojia/commit/cab766a172719516940333f5776513351f46e27e
+。
+长兴市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日最新上线），点击查询：https://github.com/fvpteo/400/commit/1b20f2a74b6293d777a30ab0b9c0052ec13fcc2a
+。
+长治市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日最新推出），点击查询：https://github.com/carldrace/weixiu/commit/a851ccd6c4431855a466af273a443c945397c047
+。
+常州市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一上线），点击查询：https://github.com/leeinsky/luyou/commit/1e44487fa4e488a87251a9bb8d9a84e5b8318507
+。
+巢湖市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日最新更新），点击查询：https://github.com/mdddebenke/baojia/commit/69532464282a1a8d9ae61214ddbe37f6181606f6
+。
+朝阳市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网上线），点击查询：https://github.com/fvpteo/400/commit/9a4ef19b2d7b1fc275b2a89dfbdb4ad1a59f2b70
+。
+潮州市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一推出），点击查询：https://github.com/carldrace/weixiu/commit/a32d81f668d6b5619eba065cd06708c3ea77e41c
+。
+郴州市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一更新），点击查询：https://github.com/leeinsky/luyou/commit/9c11ad3b1fabba7586716ef8c2f33266220e178a
+。
+承德市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网上线），点击查询：https://github.com/mdddebenke/baojia/commit/76590b8dff895238448b8c2934285f3b240908e5
+。
+成都市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日正式升级），点击查询：https://github.com/carldrace/weixiu/commit/ea036cc07712cd9206896ea01dfe67ee779d5d00
+。
+池州市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新升级），点击查询：https://github.com/fvpteo/400/commit/3aa2b29709a613912433c291db41bb4f9ff0dd70
+。
+崇左市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一更新），点击查询：https://github.com/mdddebenke/baojia/commit/979532d5deb038e4b81594e5537fbdae866087ed
+。
+滁州市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网更新），点击查询：https://github.com/leeinsky/luyou/commit/6d31340c342c8456fc5be59adcfbed50fdf833f2
+。
+慈溪市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新公布），点击查询：https://github.com/fvpteo/400/commit/9fc4cc14be5634a844489e5c844c7259eb0cb5cf
+。
+大丰市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新公布），点击查询：https://github.com/carldrace/weixiu/commit/28fd84537351e0cf60e4e884dcadb598da7683ba
+。
+大理市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新升级），点击查询：https://github.com/mdddebenke/baojia/commit/b5c569e525e900401964129ae1bd684f2bcb098b
+。
+大连市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新推出），点击查询：https://github.com/leeinsky/luyou/commit/12cfc11ab45a27879ca55e4fdd0c35b2e8b865ee
+。
+大庆市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日最新推出），点击查询：https://github.com/fvpteo/400/commit/b986f893ac8dbb868fded593d384f8990f115da3
+。
+大同市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新升级），点击查询：https://github.com/carldrace/weixiu/commit/cb2d176e69ec29db851c428460a2809908489bf8
+。
+达州市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日最新上线），点击查询：https://github.com/mdddebenke/baojia/commit/2a00d12ffe091146c52b2c0bb7bdca4c534e82bb
+。
+丹东市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新升级），点击查询：https://github.com/leeinsky/luyou/commit/5e9c4ea10d12649e474daf792c1353310fde9f10
+。
+德清市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网公布），点击查询：https://github.com/carldrace/weixiu/commit/2ed697fcaa50b86254b041723d656f5b99b368e3
+。
+德阳市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网推出），点击查询：https://github.com/fvpteo/400/commit/cd27f1dac1ee55c71fc618cb244092c03d26e6f1
+。
+德州市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新升级），点击查询：https://github.com/mdddebenke/baojia/commit/ccda98d6cf25e849c1b50e55a6104548d510a430
+。
+定州市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一公布），点击查询：https://github.com/leeinsky/luyou/commit/2db88f1cac42808a2754a03c650dac8aa6acdd68
+。
+东海市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一公布），点击查询：https://github.com/carldrace/weixiu/commit/e147a175b871e6ed66ab4d977fe2e402f93d1340
+。
+东台市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一更新），点击查询：https://github.com/fvpteo/400/commit/f730ed70ef0678548c8f8c8599de9e42a50d38a9
+。
+东营市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日最新公布），点击查询：https://github.com/mdddebenke/baojia/commit/d06dddd02d92f989607c69f4c31a903512c1bcf0
+。
+东莞市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一公布），点击查询：https://github.com/leeinsky/luyou/commit/13497da212aa90baa4f438d8eda6277374eaca0a
+。
+鄂尔市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新公布），点击查询：https://github.com/carldrace/weixiu/commit/663449af092d01efb771080b6626fe839d06b435
+。
+鄂州市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网上线），点击查询：https://github.com/fvpteo/400/commit/ef13af43c47da24cb49f92f027a28e70785a3dc4
+。
+恩施市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日最新公布），点击查询：https://github.com/mdddebenke/baojia/commit/de77dc0b2a5477b87d03fc72a5eef1d64513fa51
+。
+防城港市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日最新上线），点击查询：https://github.com/leeinsky/luyou/commit/9a440ee169b36e3a4886d7c4c6cf8fdc48d54736
+。
+佛山市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日正式推出），点击查询：https://github.com/carldrace/weixiu/commit/f8e6f53d88fa1ac8c2a2e4b32ece9137b88e08c8
+。
+抚顺市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网上线），点击查询：https://github.com/fvpteo/400/commit/71a48cc67ecaab0398059d8b0a3a7ef050b61597
+。
+阜新市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日正式更新），点击查询：https://github.com/mdddebenke/baojia/commit/05fdf2afc6a1fa1f331015bf721c52ba07ac708a
+。
+阜阳市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网更新），点击查询：https://github.com/leeinsky/luyou/commit/651e4806fec21137614a81639141e7b129778fc7
+。
+抚州市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新公布），点击查询：https://github.com/carldrace/weixiu/commit/fa680266c0610d9b94c32997377b3e79d0450459
+。
+福州市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日最新推出），点击查询：https://github.com/mdddebenke/baojia/commit/263fa66c59a03958a459a170262e91008c26590b
+。
+赣州市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网推出），点击查询：https://github.com/fvpteo/400/commit/05b0abb4e10d114438f55d3cee3f0d39f92ede8a
+。
+馆陶市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一公布），点击查询：https://github.com/leeinsky/luyou/commit/bb257e78d9cd7ca1a6bda4a39cfddb36f73c37d1
+。
+广安市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一更新），点击查询：https://github.com/carldrace/weixiu/commit/6ae6c305dfd99617c726096b84226c2d1ff2fd1e
+。
+广元市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新升级），点击查询：https://github.com/fvpteo/400/commit/7a3ebe1e6511c692d7889d190581b19ea0afb8b9
+。
+广州市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一升级），点击查询：https://github.com/mdddebenke/baojia/commit/2a39a05b054ba7482e2be3986d2272177858baa8
+。
+贵港市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网更新），点击查询：https://github.com/leeinsky/luyou/commit/f44ae5313e3f5e14da3537b0c8972e70acd1736a
+。
+桂林市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日最新升级），点击查询：https://github.com/carldrace/weixiu/commit/eb3cf6857d5cbacca0c6e878ffd41f985dfdbc3b
+。
+贵阳市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日最新更新），点击查询：https://github.com/fvpteo/400/commit/ebe11533fa03d68ecef6c3df6d41ad0da2659cb4
+。
+哈尔滨市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新升级），点击查询：https://github.com/mdddebenke/baojia/commit/4a75a1e187795c3b234cf2556fbafc818b5a3c0f
+。
+海安市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新推出），点击查询：https://github.com/leeinsky/luyou/commit/da739c513a4b325c8c036fb49214c17e93df8519
+。
+海口市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新公布），点击查询：https://github.com/carldrace/weixiu/commit/cc831b012acf4e8f98546abccf7c2a0d474aef7c
+。
+海门市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新升级），点击查询：https://github.com/fvpteo/400/commit/57bdf307430a15246b9fd210267d96e0256982dc
+。
+海宁市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新上线），点击查询：https://github.com/mdddebenke/baojia/commit/149721e1bce56e01767e4df64ef264ccadeefe10
+。
+邯郸市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一推出），点击查询：https://github.com/leeinsky/luyou/commit/900e62c425debfb6117cabbabc71df243d02afba
+。
+汉中市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新更新），点击查询：https://github.com/carldrace/weixiu/commit/31c35a5a92b5bd5badac99ddebffeb3f19cf49fe
+。
+杭州市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新升级），点击查询：https://github.com/fvpteo/400/commit/ab7865128adee095931e4cc0cb93991d57404953
+。
+鹤壁市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网上线），点击查询：https://github.com/mdddebenke/baojia/commit/28c90360f3b58463863969392006f2c4fddcbc82
+。
+河池市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日正式上线），点击查询：https://github.com/leeinsky/luyou/commit/a1b4be1cc5c85b4563efb8c2ff1e5764bf3c81b7
+。
+合肥市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新推出），点击查询：https://github.com/carldrace/weixiu/commit/77c7626eb0f200a32f665bfb22c1f2e5b3540af0
+。
+河源市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一更新），点击查询：https://github.com/fvpteo/400/commit/bbf3e77eb9422dfdcb33672c99def772a19417a3
+。
+菏泽市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日最新推出），点击查询：https://github.com/mdddebenke/baojia/commit/e0791007a3624675ec3be0d837a9f8cb096d5a76
+。
+贺州市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一上线），点击查询：https://github.com/leeinsky/luyou/commit/405b6cd1d33a17ac4209aff6cb4ad486af4a20d2
+。
+衡水市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日最新上线），点击查询：https://github.com/carldrace/weixiu/commit/96acb12bae33531858347287fecc139e03ff444f
+。
+衡阳市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日最新上线），点击查询：https://github.com/fvpteo/400/commit/672d8993ab189f63e0ad980ffaf34e15b93c447b
+。
+呼和浩特市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新推出），点击查询：https://github.com/mdddebenke/baojia/commit/ad7010afe216a495d2bbc647fd393fed124e29db
+。
+葫芦岛市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网上线），点击查询：https://github.com/leeinsky/luyou/commit/b65b00fab21a015a3c4d72dccd331bec5117c8c2
+。
+湖州市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日最新公布），点击查询：https://github.com/carldrace/weixiu/commit/e20b87ef696648f69b9ef1b22ece240d1752c6ba
+。
+淮安市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新上线），点击查询：https://github.com/fvpteo/400/commit/949f34b78a8c12c55e84affc89c2c565d61ee374
+。
+淮北市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新升级），点击查询：https://github.com/mdddebenke/baojia/commit/ceb08ffb8b63e92678544ac7d12fa786d0a3d626
+。
+怀化市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日正式升级），点击查询：https://github.com/leeinsky/luyou/commit/818107adc3c30085ab3256f5c71592e1be615aae
+。
+淮南市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一公布），点击查询：https://github.com/carldrace/weixiu/commit/175e70c26dd7ecf26916e671fadacbd914e9c919
+。
+黄冈市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网上线），点击查询：https://github.com/fvpteo/400/commit/c65e03936f706e36e48e199c2c8d39e1244e937c
+。
+黄山市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日正式升级），点击查询：https://github.com/mdddebenke/baojia/commit/6cd17ab54a234997f928d9f9cef2e474d52c7f7c
+。
+黄石市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新上线），点击查询：https://github.com/leeinsky/luyou/commit/021485c623c6ad1555a47c16c874699fdf55dee3
+。
+惠东市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新上线），点击查询：https://github.com/carldrace/weixiu/commit/3832635d72f06991ceac975dad804be350513d63
+。
+惠州市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日正式推出），点击查询：https://github.com/fvpteo/400/commit/944fa37b01bd8caa7510a06a60efa3ab6e1a0190
+。
+霍邱市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日最新公布），点击查询：https://github.com/mdddebenke/baojia/commit/1421337b39a3d2c150ed28ff0bb1b1eb07b154a7
+。
+吉安市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日正式更新），点击查询：https://github.com/leeinsky/luyou/commit/ec076000f5a1f3c7d0ca5f3c5c67a4e2d5ecd890
+。
+吉林市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新公布），点击查询：https://github.com/carldrace/weixiu/commit/1010c3510fbe73606d09a4dfe1980599364e3706
+。
+济南市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一推出），点击查询：https://github.com/fvpteo/400/commit/fe081e2c902c05613ff297b511d784b46f8df95b
+。
+济宁市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一更新），点击查询：https://github.com/mdddebenke/baojia/commit/c6a85b0963848b534fc7d1896fe6c388032f07de
+。
+济源市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网升级），点击查询：https://github.com/leeinsky/luyou/commit/d34cf8c6c9ea34cb7798f8a301b2957000d87acf
+。
+佳木斯市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一升级），点击查询：https://github.com/carldrace/weixiu/commit/799c9bed976629cc5a1c4b41f3b9ad77cd8d6fe3
+。
+嘉善市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日最新升级），点击查询：https://github.com/fvpteo/400/commit/1b298fbd7c895f20d63d44ef6d7acae13cc108a7
+。
+嘉兴市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日正式上线），点击查询：https://github.com/mdddebenke/baojia/commit/ac9d63965700d59918814bad5f463e98d369e116
+。
+嘉峪关市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一更新），点击查询：https://github.com/leeinsky/luyou/commit/eb53bd64879348f77a094d72fd4eff7d0bbf9358
+。
+建湖市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一更新），点击查询：https://github.com/carldrace/weixiu/commit/de2ae1d169ba73f6051bb112767e884e2d7e5a9f
+。
+江门市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网升级），点击查询：https://github.com/fvpteo/400/commit/fdee9e3b063407db9f564b9a325e50b661008b5f
+。
+江阴市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网推出），点击查询：https://github.com/mdddebenke/baojia/commit/fbd7ec6ecabb467a52c57749a0a54fa75287f45c
+。
+焦作市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网更新），点击查询：https://github.com/leeinsky/luyou/commit/d92f86e27ce2392ac2b53c2ec14fcac8fc92355c
+。
+揭阳市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日正式公布），点击查询：https://github.com/carldrace/weixiu/commit/8cdc738b461276604fc778ab4bf60376d437aa2f
+。
+金华市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日正式公布），点击查询：https://github.com/fvpteo/400/commit/2adebc7fd1e3dde871c6b8b241d60cd6c1f5237a
+。
+晋江市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日正式上线），点击查询：https://github.com/mdddebenke/baojia/commit/cc544691805e2eb7e8f272db33baff785b12b6d5
+。
+锦州市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新推出），点击查询：https://github.com/leeinsky/luyou/commit/3c6be44423ab36b2204ccea235465d62434c986d
+。
+景德镇市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网推出），点击查询：https://github.com/carldrace/weixiu/commit/a65f18236777985a20ad712145e5006e0495234e
+。
+靖江市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日正式升级），点击查询：https://github.com/fvpteo/400/commit/613257deb429bb6ba05004c7043080b73b00bbf6
+。
+荆门市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日正式更新），点击查询：https://github.com/mdddebenke/baojia/commit/048a375c4e7d2f082dfc52183e0ececc9c1a8e41
+。
+荆州市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一升级），点击查询：https://github.com/leeinsky/luyou/commit/6dcb04a923b3144f4cb7e0816eb14fa0908f25f3
+。
+九江市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日最新公布），点击查询：https://github.com/carldrace/weixiu/commit/2b8509881afa0f0afddc209107caa5b12cd171f5
+。
+喀什市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新更新），点击查询：https://github.com/fvpteo/400/commit/a0dc3c206c98dd738fe7428aa4f0549982928cd5
+。
+开封市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一推出），点击查询：https://github.com/mdddebenke/baojia/commit/87c63572298e81b1d6508610921f971182c1abaf
+。
+克拉玛市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日正式上线），点击查询：https://github.com/leeinsky/luyou/commit/49e08c3cee21d007b54f17c760ff90fa797b21d4
+。
+垦利市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日最新更新），点击查询：https://github.com/carldrace/weixiu/commit/376e078312ce64a574d3e81757871934290c850f
+。
+昆明市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网公布），点击查询：https://github.com/fvpteo/400/commit/d0c5a95cb2ddb6230c31797ee48f4e260066c30f
+。
+昆山市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日最新更新），点击查询：https://github.com/leeinsky/luyou/commit/ff0af0bfa843c120da4300510d617aab174b4305
+。
+拉萨市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新公布），点击查询：https://github.com/mdddebenke/baojia/commit/100453c5ca8712295d2f8ef78b5c91df68f8b905
+。
+来宾市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日最新上线），点击查询：https://github.com/carldrace/weixiu/commit/05b5c2e960c63046d8f4d79b39654f65919af5f8
+。
+莱芜市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一推出），点击查询：https://github.com/fvpteo/400/commit/660a1ef3fbf8ca7ccaccda15019d03db55759a3d
+。
+兰州市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新推出），点击查询：https://github.com/leeinsky/luyou/commit/10a685811f482fb8734c122fbf8439f0de03dcd1
+。
+廊坊市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网更新），点击查询：https://github.com/mdddebenke/baojia/commit/e950d4c66a6ba6c3f41dc65772fb8e444ec72532
+。
+乐清市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新更新），点击查询：https://github.com/carldrace/weixiu/commit/18005b85bf2510a3972d8066bf088a16a4b1b424
+。
+乐山市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网公布），点击查询：https://github.com/fvpteo/400/commit/342ce999be543485c5fd34769097a1c659929239
+。
+丽水市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日最新升级），点击查询：https://github.com/mdddebenke/baojia/commit/e3ab492b74e643b4388c0ff7119935ef020464b1
+。
+连云港市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日正式更新），点击查询：https://github.com/leeinsky/luyou/commit/3d527f1a92913300db76a90deeb0d7a6ec638144
+。
+凉山市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日正式升级），点击查询：https://github.com/carldrace/weixiu/commit/b011f8f52e0dfc30cb4138380ebe66a269ad0636
+。
+聊城市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网更新），点击查询：https://github.com/fvpteo/400/commit/1ce548fb0f6449ee558c9c3dd2a447a7934a6109
+。
+辽阳市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日最新上线），点击查询：https://github.com/mdddebenke/baojia/commit/a2520023587d839249c9ea06d2ebdde2adf47fda
+。
+临汾市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日正式更新），点击查询：https://github.com/leeinsky/luyou/commit/b02d0fc94f0c689585d3bba33768346b854ef1bf
+。
+临沂市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网升级），点击查询：https://github.com/carldrace/weixiu/commit/d65ec3658245329059d9763eeef302f72c1c8f40
+。
+六安市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日正式升级），点击查询：https://github.com/fvpteo/400/commit/cbcc12164d4f61f103ddb5c112ed6aa9c7a6cef0
+。
+柳州市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新公布），点击查询：https://github.com/mdddebenke/baojia/commit/38cb82957405f09116fb47ccb0bc7629b2927641
+。
+龙岩市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新上线），点击查询：https://github.com/leeinsky/luyou/commit/b42f68e1cbd1c104fe9eb05de908ddba4062868b
+。
+娄底市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日最新公布），点击查询：https://github.com/carldrace/weixiu/commit/828ae78f4e1d25c6bde7f7f40863210a729938c0
+。
+洛阳市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网升级），点击查询：https://github.com/fvpteo/400/commit/8979d215acd6445e6ebe8c698423d23aa3471edc
+。
+马鞍山市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新更新），点击查询：https://github.com/mdddebenke/baojia/commit/27be9287cc1a31a914b1743c8939aca264695c36
+。
+茂名市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日最新公布），点击查询：https://github.com/carldrace/weixiu/commit/b17c3ce2c43b607b53caff9380426699523b312c
+。
+眉山市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日最新更新），点击查询：https://github.com/fvpteo/400/commit/745bccdf8f2b64134c660c82b0ca212ca4d99e21
+。
+梅州市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新推出），点击查询：https://github.com/carldrace/weixiu/commit/87bf48307b22271d3bc6ec237701cccc55ce8429
+。
+绵阳市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一推出），点击查询：https://github.com/mdddebenke/baojia/commit/d54055fc8cd3a7410fb84cba4c7c0a935c8aa15c
+。
+明港市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网更新），点击查询：https://github.com/fvpteo/400/commit/b65452668471f11f01ead65ee356b9dbe01db53b
+。
+牡丹江市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日正式更新），点击查询：https://github.com/mdddebenke/baojia/commit/7505dfd789163f00c135ce7a28a70a52c5cd93bf
+。
+南安市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网推出），点击查询：https://github.com/carldrace/weixiu/commit/35f463eff6d553fcdf4234a7b3c61a39b6a7bf10
+。
+南昌市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一更新），点击查询：https://github.com/fvpteo/400/commit/091dd35ed016e3ac692f979787792596e6f5f88f
+。
+南充市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网更新），点击查询：https://github.com/mdddebenke/baojia/commit/e3e450182f5bdd4cd12d675c30553823af1478fa
+。
+南京市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网升级），点击查询：https://github.com/carldrace/weixiu/commit/7832ad52f4669275ce6c0d695e3003d363f28513
+。
+南宁市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新推出），点击查询：https://github.com/fvpteo/400/commit/fac83c701f69ede8ac26f737adc9fd3d7f0f6072
+。
+南平市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网更新），点击查询：https://github.com/mdddebenke/baojia/commit/318c338d17a936fecfc97e90a9b5f5f53bcf7c90
+。
+南通市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新公布），点击查询：https://github.com/carldrace/weixiu/commit/bf8ba23477c99a81dca6d156602f32fdcf53645c
+。
+南阳市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日最新更新），点击查询：https://github.com/leeinsky/luyou/commit/7b46711751ac82a0d21653d1b9e21c81b47faeae
+。
+内江市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网上线），点击查询：https://github.com/fvpteo/400/commit/b9c63a5ec62f1c946d046c02f89d27d09fa0829f
+。
+宁波市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一升级），点击查询：https://github.com/mdddebenke/baojia/commit/8362bd57886ee9f17d390b0e17747a4d33250c22
+。
+宁德市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一推出），点击查询：https://github.com/carldrace/weixiu/commit/8e11f874d8aa9bcf2936a512eb74547c0c85e7a4
+。
+宁国市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网上线），点击查询：https://github.com/leeinsky/luyou/commit/cc3f3259ab0efb1ea749be8e5786912ead496835
+。
+盘锦市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一更新），点击查询：https://github.com/fvpteo/400/commit/82e20b2cde40d1659bb623a305302b474372264d
+。
+攀枝花市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新更新），点击查询：https://github.com/mdddebenke/baojia/commit/2ad6486d6d20fc072835a689f500b9d6eb6dfcbf
+。
+平顶山市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日最新推出），点击查询：https://github.com/carldrace/weixiu/commit/47cdb600ead4a9db7ba42fe06e648bd2746a6b23
+。
+萍乡市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新更新），点击查询：https://github.com/fvpteo/400/commit/68578b070994ada9d358fdd152dc9c6181bf3f06
+。
+莆田市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日正式上线），点击查询：https://github.com/leeinsky/luyou/commit/af97b180c9ac3903c29e1a8e168d0a1da2ebc473
+。
+启东市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网公布），点击查询：https://github.com/mdddebenke/baojia/commit/27be0d9aad8378bf7fc1b43b4f751c57db2f1ccb
+。
+齐齐哈尔市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一更新），点击查询：https://github.com/carldrace/weixiu/commit/315a6b6c182a4da62cdef8d3889e2fcee9d6dbc2
+。
+潜江市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网公布），点击查询：https://github.com/leeinsky/luyou/commit/5976fb0999d00e71d82f6d2fcf833270260c4a7a
+。
+秦皇岛市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一公布），点击查询：https://github.com/fvpteo/400/commit/6eeda8401273bc6700950ac3323208bf8cfb3268
+。
+钦州市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一升级），点击查询：https://github.com/carldrace/weixiu/commit/dd5dfb1e4df5d195b9db6eb8f4d28f977f03a03e
+。
+青岛市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新升级），点击查询：https://github.com/mdddebenke/baojia/commit/77edeb133cb81ace7853a5cc9f175e87dd391882
+。
+清远市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一升级），点击查询：https://github.com/leeinsky/luyou/commit/4ec880290d6ea0cca85209c00e120ae10a0c70f3
+。
+曲靖市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网推出），点击查询：https://github.com/fvpteo/400/commit/af60e12c8f4bf8fff95dd586cd8f9dd8211ad23a
+。
+泉州市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一更新），点击查询：https://github.com/carldrace/weixiu/commit/090284a7ff41c3453f14c9813fa6b95438b8964d
+。
+日照市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新上线），点击查询：https://github.com/mdddebenke/baojia/commit/f20240f56018cabf33d2fe6dfabdc8da8830f8f8
+。
+如东市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网更新），点击查询：https://github.com/fvpteo/400/commit/e4811cb4836d469ededf8c5415e69e1314d5702f
+。
+如皋市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日最新推出），点击查询：https://github.com/leeinsky/luyou/commit/16d6aea99bec6a397c658a84a3d43c7905327738
+。
+瑞安市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一升级），点击查询：https://github.com/carldrace/weixiu/commit/e82d48e61aeeb0d782dc23ee4526437f4a3d9175
+。
+三门峡市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网公布），点击查询：https://github.com/mdddebenke/baojia/commit/3e2756ccde41648a988362715eb36f72b884dfc6
+。
+三明市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网推出），点击查询：https://github.com/fvpteo/400/commit/4c76502b9f1ea6a3841382fa784de11a1d96e11d
+。
+三亚市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一公布），点击查询：https://github.com/leeinsky/luyou/commit/92970c2243c1dd7dac800c3d1b88db20663c8166
+。
+汕头市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日正式推出），点击查询：https://github.com/carldrace/weixiu/commit/ff0520c38251de0314fd1e49e9f06ee9da8b6f72
+。
+汕尾市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网公布），点击查询：https://github.com/mdddebenke/baojia/commit/73030cb2dec8e0e473dc215ee71768e174974480
+。
+上海市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日最新上线），点击查询：https://github.com/fvpteo/400/commit/43ef81e6521d23697ba63aaa6f05531bef3c6f3d
+。
+商丘市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日最新上线），点击查询：https://github.com/leeinsky/luyou/commit/4b14df37b8e6307adac6fee8f1bd171a0dd593d0
+。
+上饶市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一升级），点击查询：https://github.com/carldrace/weixiu/commit/64a7e4847870019c0f019e99fcb2efd326f0d016
+。
+韶关市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网上线），点击查询：https://github.com/mdddebenke/baojia/commit/f1e83fb59a28074f0d15799e25ca6899192b9ca3
+。
+绍兴市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一升级），点击查询：https://github.com/fvpteo/400/commit/60270bc08ac2f84421ee6c91ff3cf20fe6a950cf
+。
+邵阳市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网更新），点击查询：https://github.com/leeinsky/luyou/commit/a71d2557e64202f5cefafda82054e232acdf6d9a
+。
+神农架市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日正式升级），点击查询：https://github.com/carldrace/weixiu/commit/eb8cd1f89f341a807517bad9856209e5fc0d8c1d
+。
+沈阳市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新推出），点击查询：https://github.com/mdddebenke/baojia/commit/337bf00439f59b81048052e027305a3498d558d5
+。
+深圳市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网升级），点击查询：https://github.com/fvpteo/400/commit/4da521f6231b9c1a027e4ae12f7c8b3df902602b
+。
+石河子市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网推出），点击查询：https://github.com/leeinsky/luyou/commit/4a75d2b33adb74f31d95ee5dbce913f7fefcaacd
+。
+石家庄市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日正式上线），点击查询：https://github.com/leeinsky/luyou/commit/bafeddbb210e3b68c8d150aed916830fb00b7f9d
+。
+石狮市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新上线），点击查询：https://github.com/mdddebenke/baojia/commit/3cafd52a358245c7440cfd2e9d9fd828b0083cfb
+。
+十堰市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日正式上线），点击查询：https://github.com/fvpteo/400/commit/79ddbfdaa4ffd5b23f4b6013ff017a797a60a6c5
+。
+寿光市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一推出），点击查询：https://github.com/carldrace/weixiu/commit/0d8176995c1497b4969ca53e49571513f477d21d
+。
+顺德市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新更新），点击查询：https://github.com/mdddebenke/baojia/commit/78e6db79bbe9b1d4d0dd03d4c4bd24e542d72137
+。
+四平市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一上线），点击查询：https://github.com/leeinsky/luyou/commit/c8e4e8bdfb51f9ce0ce2d0120b1d32708ea5e1a4
+。
+宿迁市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一升级），点击查询：https://github.com/fvpteo/400/commit/22d39c4b8cd73758818aa1292bafc7a844289889
+。
+苏州市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一更新），点击查询：https://github.com/carldrace/weixiu/commit/de46443ab89bd74f7f3b327e54b110cd313d11e5
+。
+宿州市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日正式升级），点击查询：https://github.com/mdddebenke/baojia/commit/00b7cdfec040848d207d47488a78a2170bcffeab
+。
+遂宁市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网升级），点击查询：https://github.com/leeinsky/luyou/commit/467246ecb146e6b47eee5eb55eeb590e11544ca0
+。
+随州市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新升级），点击查询：https://github.com/fvpteo/400/commit/c23f5338977a918c02d1b3b7c1bbcb335e0334ad
+。
+泰安市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新推出），点击查询：https://github.com/carldrace/weixiu/commit/00a9a94fb6beca665351fdfada4dc00ebb3c12d8
+。
+台山市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日最新公布），点击查询：https://github.com/leeinsky/luyou/commit/70b61e2624cde424fdf3b34aedbb037ff388b862
+。
+泰兴市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一上线），点击查询：https://github.com/mdddebenke/baojia/commit/3b871eabe0246c31829679a5644c86ce46a3d779
+。
+太原市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一上线），点击查询：https://github.com/fvpteo/400/commit/4bc7ab6e4645d19534f142ee0851029e3251069c
+。
+泰州市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网上线），点击查询：https://github.com/carldrace/weixiu/commit/e28ddb696f55a866b7b0d0399f4724bd3f141cf9
+。
+唐山市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新更新），点击查询：https://github.com/leeinsky/luyou/commit/ae93af110f83e9f25231c04aee2ade392475e4eb
+。
+天长市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一推出），点击查询：https://github.com/mdddebenke/baojia/commit/e084102e1b42fc8ff7a9612f16ee0380c668bda4
+。
+天津市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日正式更新），点击查询：https://github.com/fvpteo/400/commit/a8ca512821c8163d4d30fed75b8e0c560e18579a
+。
+天门市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日最新更新），点击查询：https://github.com/carldrace/weixiu/commit/9a86e00ce63eab86388962a808addd0fa1f63660
+。
+天水市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网推出），点击查询：https://github.com/mdddebenke/baojia/commit/895ac5f36f8ee3b30748820305bf85591fab26a9
+。
+铁岭市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网升级），点击查询：https://github.com/leeinsky/luyou/commit/5ebe6a3be586641792afd83fac0de0a8826022f7
+。
+桐城市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日正式更新），点击查询：https://github.com/fvpteo/400/commit/0cdba0bf5013d318ca00d5acc449acb91f75e633
+。
+铜川市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新推出），点击查询：https://github.com/carldrace/weixiu/commit/3b2e8ca12b65cfb072be2e8fa241d75b0c908e3d
+。
+铜陵市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新上线），点击查询：https://github.com/leeinsky/luyou/commit/4cfc5e329775949bec93c61f4296c82eafd69e88
+。
+桐乡市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一上线），点击查询：https://github.com/mdddebenke/baojia/commit/5e82a1dd41e929a1058b09c25198b06d5c31e4ee
+。
+瓦房店市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新上线），点击查询：https://github.com/fvpteo/400/commit/fc715cc2fe30731446d695191d57616bdcc6766f
+。
+潍坊市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新公布），点击查询：https://github.com/carldrace/weixiu/commit/6ae41d66c0900f847972b2a360c98c8f1be48a9b
+。
+威海市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日正式推出），点击查询：https://github.com/leeinsky/luyou/commit/50a6c2c78dc041d06126d0132030d448a8e32ebb
+。
+温岭市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新升级），点击查询：https://github.com/mdddebenke/baojia/commit/b8f764fa3c74d772a1c7dff3c5a598bd98753d4e
+。
+温州市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日正式推出），点击查询：https://github.com/fvpteo/400/commit/12c7d843b9ca23b56c22347b89c3b10419dff4cb
+。
+武汉市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日最新升级），点击查询：https://github.com/carldrace/weixiu/commit/bbc376d7734e8f7a8570000a9f2cd5ff01a36bca
+。
+芜湖市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日正式公布），点击查询：https://github.com/leeinsky/luyou/commit/0f40e7706dc9002ef9036ba414527d2ce58d46c6
+。
+乌鲁木齐市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新公布），点击查询：https://github.com/mdddebenke/baojia/commit/f94d9cbd4f3f0cc2707e76d411820038d9665fe3
+。
+无锡市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新升级），点击查询：https://github.com/fvpteo/400/commit/a28ceda6e28f1711aae48178d522255985633dc9
+。
+武夷山市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日最新公布），点击查询：https://github.com/carldrace/weixiu/commit/a0d1ca3839f1b8a61fa5b106592ff112298868b3
+。
+梧州市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一上线），点击查询：https://github.com/leeinsky/luyou/commit/f271f824c5812f53c92f8c6c9a4569454d3a9e4b
+。
+西安市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日最新更新），点击查询：https://github.com/mdddebenke/baojia/commit/ebacf05f91b42c05fbfe74f90847fc30a8e92014
+。
+西宁市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网上线），点击查询：https://github.com/fvpteo/400/commit/8c7cfe4d0a4e45d990b9a9808245f3ebec175cc4
+。
+厦门市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网公布），点击查询：https://github.com/carldrace/weixiu/commit/9190e8582ca4efa0cb6c8f9db220efce588d688e
+。
+咸宁市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网公布），点击查询：https://github.com/leeinsky/luyou/commit/40718dce6ff39e48dc61e9fc6fb1931809fc9708
+。
+仙桃市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新升级），点击查询：https://github.com/mdddebenke/baojia/commit/f1f0ee7faf3d39564932b0682cb63b62cd2b043d
+。
+咸阳市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新公布），点击查询：https://github.com/fvpteo/400/commit/6f120c232a6e07e00d3aacb3d8731ed604eca749
+。
+襄樊市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新更新），点击查询：https://github.com/carldrace/weixiu/commit/6bfeb4b29b5c29ec157c8f7b0ec866773764948a
+。
+象山市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一升级），点击查询：https://github.com/leeinsky/luyou/commit/e4a613c5fd51b0ddbed813ce5d311b509c293f8c
+。
+湘潭市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网推出），点击查询：https://github.com/mdddebenke/baojia/commit/70e462f0874f4059d42d1c780104201543b4a589
+。
+湘西市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新公布），点击查询：https://github.com/carldrace/weixiu/commit/3a34eb900af7e2e9155af6162091391a38d6b871
+。
+襄阳市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新更新），点击查询：https://github.com/fvpteo/400/commit/2a2fda56ad1546a1707ecffd3e0331180c8f1144
+。
+孝感市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日正式更新），点击查询：https://github.com/leeinsky/luyou/commit/0855df9817900d41dfb5b073f3857066e749a657
+。
+萧山市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一推出），点击查询：https://github.com/mdddebenke/baojia/commit/7dd4fcd1d6a450c4da97d731c6adbc04bb777414
+。
+新乡市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日最新公布），点击查询：https://github.com/fvpteo/400/commit/51d63c80ec06582fa7a450e1f30df3bf70b779b9
+。
+信阳市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网上线），点击查询：https://github.com/carldrace/weixiu/commit/ecb1f130cf3910bdc4a13477aa9c5f2139840a24
+。
+新沂市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日正式上线），点击查询：https://github.com/mdddebenke/baojia/commit/12b0841ca50317f142d4bad301d239788dd788d7
+。
+新余市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新升级），点击查询：https://github.com/leeinsky/luyou/commit/a5fbddcec42ef3ab0596f0e93334699ac0e964d2
+。
+兴化市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网公布），点击查询：https://github.com/fvpteo/400/commit/4afe54b3a62c335013d5d060ec3e67ac80523be8
+。
+邢台市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网公布），点击查询：https://github.com/carldrace/weixiu/commit/31c795a0d9f4fe0995b17e624d4fc42d3cb3cdc1
+。
+许昌市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日最新更新），点击查询：https://github.com/leeinsky/luyou/commit/c1b7882074cc7eff1b14a89dbb6a75d7c6dfdfff
+。
+徐州市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新推出），点击查询：https://github.com/mdddebenke/baojia/commit/33df4200454fbccd3dd2fb40f1b3e01a845422b3
+。
+宣城市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日正式推出），点击查询：https://github.com/fvpteo/400/commit/cd9384961d7a658c2f8fc63718323c7d0f1b064b
+。
+雅安市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一上线），点击查询：https://github.com/leeinsky/luyou/commit/7e0ca8c4a5fcd8ccc2797c149c3d14313fac69e6
+。
+延安市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一升级），点击查询：https://github.com/carldrace/weixiu/commit/886e54b0391f2d686b429c2b52a54387c93d818a
+。
+盐城市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一公布），点击查询：https://github.com/mdddebenke/baojia/commit/1b0910d989950d90de5de547948d5c60f7c57b83
+。
+烟台市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日正式上线），点击查询：https://github.com/fvpteo/400/commit/2f2ea35241437fd81211392e2d13b5b350f56841
+。
+阳春市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日最新推出），点击查询：https://github.com/leeinsky/luyou/commit/8b6d27fa319a99fe2b66d8bba8a84001ee505cc9
+。
+阳江市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一推出），点击查询：https://github.com/carldrace/weixiu/commit/654568efb1d96e57617dca632d2b30f9793662c8
+。
+阳泉市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新公布），点击查询：https://github.com/mdddebenke/baojia/commit/d53d8b476d6aba6d150757411d1e7cc28acefe31
+。
+扬中市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一推出），点击查询：https://github.com/fvpteo/400/commit/d58df622e9944a770ff537a0f22f87595d0af44f
+。
+扬州市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网升级），点击查询：https://github.com/leeinsky/luyou/commit/3444291251eeda143364ab88d5ba8ea6b5b4bb50
+。
+宜宾市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日最新升级），点击查询：https://github.com/carldrace/weixiu/commit/1d438e9c26b737e1a246a0ff8a146f1cc15de5ef
+。
+宜昌市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新更新），点击查询：https://github.com/mdddebenke/baojia/commit/8868df9d2037d458e6f0bf8b702f2fdff4c78431
+。
+宜春市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新推出），点击查询：https://github.com/fvpteo/400/commit/10405550543cf89812802b51e97406007bdb46bf
+。
+宜都市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新升级），点击查询：https://github.com/leeinsky/luyou/commit/f07a49b4d6a6c4b8ed73c6925aaa5edd8d410106
+。
+义乌市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新推出），点击查询：https://github.com/carldrace/weixiu/commit/7b2b58f389245aa19000ac7b95360ea14bed1370
+。
+宜兴市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新升级），点击查询：https://github.com/mdddebenke/baojia/commit/9540532ae10dcc288b2db50da09873120d389654
+。
+益阳市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日最新升级），点击查询：https://github.com/fvpteo/400/commit/4c75d412c85f3b09a25b55df9ec62f4fd95697fa
+。
+银川市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日最新推出），点击查询：https://github.com/leeinsky/luyou/commit/8cf7233570a1103fbe775e95df9dc977a82fcfc9
+。
+营口市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一更新），点击查询：https://github.com/carldrace/weixiu/commit/66b7788f0a27788bbb0e5245f2eedf0deb37fddd
+。
+鹰潭市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一更新），点击查询：https://github.com/mdddebenke/baojia/commit/f53c341321715f57cb0c1de4e2c9dad11b9cf68c
+。
+永新市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日正式推出），点击查询：https://github.com/fvpteo/400/commit/6a309eb977a2c352927d9c9a575e4b71d21cc2f1
+。
+永州市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一更新），点击查询：https://github.com/carldrace/weixiu/commit/c6c9723bc0f4f32dd437ec66d35fed65f92ce232
+。
+榆林市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日正式公布），点击查询：https://github.com/leeinsky/luyou/commit/08250a59b5a9efffe304fabad0a27b7c27d003c7
+。
+玉林市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网上线），点击查询：https://github.com/mdddebenke/baojia/commit/706612b11076f7961f2eb3382b62c140f632bdd1
+。
+玉溪市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日正式公布），点击查询：https://github.com/fvpteo/400/commit/1b9b3aac738544efd187d1fb467375a400a9d588
+。
+余姚市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一升级），点击查询：https://github.com/leeinsky/luyou/commit/e53c09f3660f9664e01d52afe2500a56db46eb93
+。
+禹州市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日最新更新），点击查询：https://github.com/carldrace/weixiu/commit/8589eb4dcc84a62897407c09d3c1eb289d1bafbb
+。
+岳阳市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一上线），点击查询：https://github.com/mdddebenke/baojia/commit/34767aa64fc57b3efafbbec7df21017e7bd11b16
+。
+云浮市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日最新升级），点击查询：https://github.com/fvpteo/400/commit/e6f4f4f438830500009feaddd0c6a329767706a6
+。
+枣庄市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新推出），点击查询：https://github.com/leeinsky/luyou/commit/860135cc54cb19fe4dec85550d98c5acdd5db9b0
+。
+湛江市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日正式更新），点击查询：https://github.com/carldrace/weixiu/commit/60cc18d8d2a2d3eaddee20639230db3173a4a1d5
+。
+张家界市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新更新），点击查询：https://github.com/mdddebenke/baojia/commit/aa201b4d7eada7d6d8539c346ad54969a5e219c4
+。
+张家口市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日最新推出），点击查询：https://github.com/fvpteo/400/commit/e27c7f8d8a4870435737f80b8adc6d98c3954cce
+。
+章丘市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日最新上线），点击查询：https://github.com/leeinsky/luyou/commit/9de9434e4a48adb3d2a38fa64e81152cf78daf1f
+。
+漳州市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日正式升级），点击查询：https://github.com/carldrace/weixiu/commit/2bcb037dc330bfe265010c9c7f1fab0a01a29465
+。
+肇庆市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日正式上线），点击查询：https://github.com/mdddebenke/baojia/commit/99b7e7426a0c58ea2a706843577779c239ed1b9e
+。
+镇江市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日正式升级），点击查询：https://github.com/fvpteo/400/commit/11a103bf3ce7cfe8f248f0793d720c55b1c3fded
+。
+郑州市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日正式上线），点击查询：https://github.com/leeinsky/luyou/commit/c7904bf1b7b80a6a3b7f4f603365d60db7960064
+。
+重庆市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网升级），点击查询：https://github.com/carldrace/weixiu/commit/26ccdfaf3c853793cbb2588fe501dfc6fee56302
+。
+中山市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网上线），点击查询：https://github.com/mdddebenke/baojia/commit/1c831cd73bf1329adc6c4874e2295279933df0d5
+。
+周口市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网上线），点击查询：https://github.com/fvpteo/400/commit/d783820bc6426535f5440a63b74e186b425e215e
+。
+舟山市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新上线），点击查询：https://github.com/leeinsky/luyou/commit/9c866057c35299b44d1e042cfbba786cb81f5747
+。
+诸城市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网上线），点击查询：https://github.com/fvpteo/400/commit/6635a0e771cbf01aa32fae142de8cacdd44c71c8
+。
+珠海市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日正式公布），点击查询：https://github.com/mdddebenke/baojia/commit/fbe5cea22989da07e90a343174f08f8f83f35d5f
+。
+株洲市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日正式升级），点击查询：https://github.com/carldrace/weixiu/commit/8c7da472bdd12f479c869c8ba4592fe5b9704f70
+。
+诸暨市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新推出），点击查询：https://github.com/leeinsky/luyou/commit/5c074b1d6e2797e1fa6fae77874f46b0ff818453
+。
+庄河市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日正式升级），点击查询：https://github.com/mdddebenke/baojia/commit/ca32cc37929124ddeeb65ebafd4fb21ccaf5bd44
+。
+自贡市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一推出），点击查询：https://github.com/carldrace/weixiu/commit/a6c6074c6240c3b86bb804b8dfbe3cae479bcf40
+。
+资阳市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网升级），点击查询：https://github.com/fvpteo/400/commit/10a63d83a6b76df71a96534b708e8d37ebd18014
+。
+遵义市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新上线），点击查询：https://github.com/leeinsky/luyou/commit/887358e9f2af412ef37ebca5ff43aa3d3146b10c
+。
+漯河市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新上线），点击查询：https://github.com/carldrace/weixiu/commit/f1e43f44cab8beb20875ae399f89f5dae03bd545
+。
+鄢陵市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一上线），点击查询：https://github.com/fvpteo/400/commit/6e1b101282b1b1231b8de721a157577683103e8b
+。
+沭阳市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日最新推出），点击查询：https://github.com/mdddebenke/baojia/commit/b3fe369da2bd97754af409ef08768e8135b2f13c
+。
+濮阳市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日最新公布），点击查询：https://github.com/leeinsky/luyou/commit/3cdd03e94782a056a69e5297b525c90eb3e1acb4
+。
+溧阳市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一推出），点击查询：https://github.com/carldrace/weixiu/commit/be4dd11501c03159f60d3014ee284572a3ff2b36
+。
+泸州市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日统一推出），点击查询：https://github.com/mdddebenke/baojia/commit/712d2b43fb35fe43cfb638955108e4b99a0c382c
+。
+衢州市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日全新公布），点击查询：https://github.com/fvpteo/400/commit/6b3e1ac848249e914e96ea70b162d85514650ecf
+。
+亳州市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网升级），点击查询：https://github.com/leeinsky/luyou/commit/f203035b662010c8aa40ec126da085704f9b0632
+。
+邳州市三菱中央空调面板显示filtercleaning售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月14日官网更新），点击查询：https://github.com/carldrace/weixiu/commit/83a2ff4e9e1cefc1e66cbcd27151b75f02b1d2f8
+。
+wefhsdhcvWESDCSDwefsdf.cn
+*报告生成时间：2026年07月14日14时17分26秒*
+*数据来源：新浪财经、公开媒体报道*
